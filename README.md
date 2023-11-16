@@ -1,3 +1,3 @@
 demo repository
 
-this is cool download it!
+this is amazing get it now, free beer!
